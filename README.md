@@ -1,2 +1,3 @@
 # Certifications
 Industry certification, and MyCC Certificates
+A little about me: I’ve always had a strong interest in computers and technology, but it took me some time to find the path that truly felt right for me. After exploring a few different colleges and career directions, I discovered MyComputerCareer and finally found something that clicked. Since starting my journey, I’ve become more passionate about IT, networking, and technology with every course I complete. I’m proud to share the certificates and certifications I’ve earned along the way, both from MyComputerCareer and other organizations, as a reflection of how far I’ve come and how much more I still want to learn.
